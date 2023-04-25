@@ -9,6 +9,8 @@ Mọi link trong note này là an toàn, vì vậy anh chị em bạn bè hãy c
 # Địa điểm
 <a href="https://www.google.com/maps/place/Nh%C3%A0+V%C4%83n+Ho%C3%A1+Ph%E1%BB%91+2/@19.8456644,105.7569527,17z/data=!3m1!4b1!4m6!3m5!1s0x3136f786f951813f:0x297f116166a0c535!8m2!3d19.8456644!4d105.7595276!16s%2Fg%2F11tnvt7q7y" target="_blank">Click để xem google map nhé <3 </a>
 
+# Sầm  Sơn nè
+  - Cách nhà Hiền chỉ hơn 20km. Nên anh chị em có thể ở lại xuống Sầm Sơn chơi nhé <3
 # Link đăng ký tham dự
 
 # Lời chúc online
